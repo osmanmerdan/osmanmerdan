@@ -1,2 +1,2 @@
 -  Osman Merdan, MD
--  PhD Candidate in Medical Life Science and Tech.
+-  PhD student in Medical Life Science and Tech.
